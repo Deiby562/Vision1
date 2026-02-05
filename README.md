@@ -2,5 +2,5 @@
 
 Vision2026-1 
 
-Repo
+Próximamente este archivo y todo este repositorio tendrá mucho más contenido, por favor sean pacientes, gracias de antemano.
 
